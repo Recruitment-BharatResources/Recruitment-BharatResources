@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Recruitment-BharatResources
 - 👀 I’m interested in connecting with tech professionals
-- 🌱 I’m currently learning ...
 - 💞️ I’m looking to recruit people in early stage startups
 - 📫 How to reach me https://www.linkedin.com/in/manoj-yadav-420/
 
